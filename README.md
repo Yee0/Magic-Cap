@@ -1,0 +1,2 @@
+# Magic-Cap
+For freedom
